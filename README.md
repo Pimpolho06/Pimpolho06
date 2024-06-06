@@ -2,7 +2,7 @@
   
  ✨ LorenA - 17y* ✨
 
-**_Estudo na Escola [Nicota] (instagram/escola.donanicota)_**
+**_Estudo na Escola [Nicota](https://instagram/escola.donanicota)_**
 
 seguem ai, moods do meu dia a dia rsrs:
 
